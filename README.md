@@ -1,0 +1,7 @@
+- Hi there!
+- I'm xameswatt, a student who is dedicated to self-improvement.
+- With a strong interest in computer science and software development, I constantly engage in creating projects and learning new things.
+- I also enjoy contributing to open-source projects.
+- Keeping up with technological advancements and honing my skills has become a true passion.
+- Feel free to get in touch for discussions or potential collaborations.(yaverrtx@gmail.com)
+- Together, we can take steps towards a better coding world!
